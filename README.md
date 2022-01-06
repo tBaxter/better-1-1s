@@ -63,7 +63,7 @@ Another technique for pulling more info out of people is to more or less repeat 
 You’ll see moments where people become excited. They’re more animated. They’ll talk faster. They’ll lean forward. They’re engaged. Watch for these moments and seize them. What is it that’s so exciting? They want to talk about it, so let them.
 
 **Circle back.**
-If you think there’s more to a thread, come back to it. If you feel resistance -- maybe they feel they’ve already said too much -- you could push, but it’s often better to let it go and come back to it later. And, in some cases, come back to it again. GIve space, but come back to it again until you feel like you have a good understanding.
+If you think there’s more to a thread, come back to it. If you feel resistance -- maybe they feel they’ve already said too much -- you could push, but it’s often better to let it go and come back to it later. And, in some cases, come back to it again. Give space, but come back to it again until you feel like you have a good understanding.
 
 **Be relaxed.**
 If you want to put your 1:1 at ease, you have to be easy yourself. Since people have a tendency to mirror the behavior they see in others, especially when there’s a power imbalance, any nervousness or rigidity on your part will be doubled. But if you’re relaxed, open and conversational, that’s the tone you’ve set for them to mirror.
