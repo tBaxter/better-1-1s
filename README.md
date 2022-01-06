@@ -4,7 +4,7 @@ Regular 1:1 meetings are foundational for many managers — the bedrock from whi
 
 They may need better interviewing techniques.
 
-As a young journalist working at daily newspapers I learned interview techniques early on that continue to be useful today in my 1:1s. Journalists have honed these interview techniques for decades for one simple reason: they’re effective tools to get people to open up and share context with you.
+As a young journalist working at daily newspapers I learned interview techniques early on that continue to be useful today in my 1:1s. Journalists have honed these interview techniques for decades for one simple reason: they’re effective tools to get people to open up and talk to you.
 
 So let’s talk about what makes a good interview: it’s not the Q&A. That’s a format, not what makes an interview useful or successful. Plenty of great interviews have been sparked by a single question. What makes interviews great are active listening, thoughtful follow-ups and an easy, conversational feel.
 
